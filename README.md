@@ -5,7 +5,7 @@ We accept the orders to close your Instagram target page in low price
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx1
+ Telegram : https://t.me/erfan4lx
   
  Email : erfan4lx@gmail.com
  
@@ -14,9 +14,9 @@ Show full video on YouTube : Video was deleted by YouTube, you can get the video
 Show demo video on Instagram : https://www.instagram.com/tv/Cb-rNYOF4vO/
  
 
-🆔My YouTube Channel : http://youtube.com/erfan4lx
+🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/Erfan4lxTeam1
+🆔My Telegram Channel : https://t.me/erfan4lx_channel
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
